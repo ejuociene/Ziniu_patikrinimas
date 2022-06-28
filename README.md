@@ -1,0 +1,1 @@
+# Ziniu_patikrinimas
